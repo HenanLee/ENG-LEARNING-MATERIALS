@@ -1,14 +1,10 @@
 Orange
-字幕组
-怦然心动
-翻译：Linton 三火子 知了 云菌 KJ肉包 兔子 Supreme
-All i ever wanted was for Juli Baker to leave me alone.
-校对：莫愁 达斯  监制：Isabella
+
 It all began in the summer of 1957,
 before the start of second grade.
 I like this place.
 It's cool. Uh, what color is my room?
-后期：橘子  压制：sherlock
+
 Just you wait.
 Let's see what's inside. Hey, come on, buddy Bryce.
 Why don't, uh, you and I go help unload the van...
@@ -1757,8 +1753,5 @@ Do you need some help?
 Yeah.
 But that day, we started.
 And i knew we'd be talking for a long time.
-欢迎关注微信公众号
-搜索  o_meiju
-或微博 @ Orange字幕组
-Orange 字幕组
+
 更多精彩请访问 www.orangesub.com
